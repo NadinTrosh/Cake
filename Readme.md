@@ -1,1 +1,1 @@
-Все будет хорошо!
+We are champions
